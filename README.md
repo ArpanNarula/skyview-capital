@@ -36,4 +36,5 @@ Our Company SkyView Capital comprises of five talented and motivated individuals
 
 
 # Feedback
-If you have any feedback or suggestions, please reach out to me at divyanshjain.2206@gmail.com
+If you have any feedback or suggestions, please reach out to me at arpannarula9999@gmail.com
+
